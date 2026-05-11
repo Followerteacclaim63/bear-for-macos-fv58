@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Bear for macOS integration with Bear for macOS elite Integration: reminders & widgets. Featuring reminders and widgets, it's the best choice for macOS users.
 
 
 
